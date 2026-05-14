@@ -1,0 +1,1 @@
+# sesi_lop_vetores_e_matrizes_2026
